@@ -1,2 +1,2 @@
 # my-info
-My Githib Profile info
+My Github Profile info
