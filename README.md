@@ -20,7 +20,7 @@
 👯 I’m looking to collaborate on machine learning, data science, and software engineering projects.
 🤔 I’m looking for help with cloud technologies.
 💬 Ask me about data analysis, predictive modeling, and software engineering.
-📫 How to reach me: mightymanmensah@gmail.com
+📫 How to reach me: cmensah@gimpa.edu.gh
 
 
 ⚡ Fun fact: I am an Arsenal Fan. Times are Hard !!!.
