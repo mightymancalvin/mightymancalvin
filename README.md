@@ -21,6 +21,8 @@
 🤔 I’m looking for help with cloud technologies.
 💬 Ask me about data analysis, predictive modeling, and software engineering.
 📫 How to reach me: mightymanmensah@gmail.com
+
+
 ⚡ Fun fact: I am an Arsenal Fan. Times are Hard !!!.
 
 ## Connect with me:
